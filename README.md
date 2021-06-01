@@ -1,2 +1,0 @@
-# Deepika
-Projects
